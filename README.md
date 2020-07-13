@@ -1,1 +1,1 @@
-UAS PBB Aris - Winda - Rayhan
+UAS PBB Aris - Rayhan - Winda
